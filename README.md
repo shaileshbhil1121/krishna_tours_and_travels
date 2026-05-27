@@ -1,1 +1,1 @@
-# krishna_tours_and_travels
+# shree-krishna-tours-and-travelers
